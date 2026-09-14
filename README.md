@@ -38,4 +38,4 @@ Recién graduado en **DAM** (Desarrollo de Aplicaciones Multiplataforma) y actua
 
 * **LinkedIn:** [Tu enlace de LinkedIn](https://linkedin.com)
 * **Email:** [alvarophck@gmail.com](mailto:alvarophck@gmail.com)
-* **X / Twitter:** [@tu_usuario](https://twitter.com)
+* **X / Twitter:** [https://x.com/Alvaro761857](https://x.com/Alvaro761857)

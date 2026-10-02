@@ -36,6 +36,6 @@ Recién graduado en **DAM** (Desarrollo de Aplicaciones Multiplataforma) y actua
 
 ###  ¿Hablamos?
 
-* **LinkedIn:** [Tu enlace de LinkedIn](https://linkedin.com)
+* **LinkedIn:** [LinkedIn](https://www.linkedin.com/in/%C3%A1lvaro-garc%C3%ADa-quismondo-lizana-19403b336/)
 * **Email:** [alvarophck@gmail.com](mailto:alvarophck@gmail.com)
 * **X / Twitter:** [https://x.com/Alvaro761857](https://x.com/Alvaro761857)
